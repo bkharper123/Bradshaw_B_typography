@@ -1,1 +1,1 @@
-# Bradshaw_B_typography
+My typography assignment with my favorite subject typography!
