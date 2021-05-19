@@ -1,1 +1,1 @@
-My typography assignment with my favorite subject typography!
+My typography assignment with my favorite subject matter!
